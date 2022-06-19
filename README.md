@@ -1,0 +1,1 @@
+# stakato2005.github.com
